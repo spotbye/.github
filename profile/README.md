@@ -14,4 +14,4 @@ THnzAAwZgp2Sq5CAXLP2njQDhTvgZG9EWs
 
 ### Questions or need help with your donation?
 
-Feel free to contact me via [t.me/afkarxyz](https://t.me/afkarxyz) or [hi@afkarxyz.fyi](hi@afkarxyz.fyi)
+Feel free to contact me via [t.me/afkarxyz](https://t.me/afkarxyz) or hi@afkarxyz.fyi
